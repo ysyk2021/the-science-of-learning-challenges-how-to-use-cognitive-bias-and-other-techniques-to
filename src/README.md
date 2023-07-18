@@ -8,5 +8,4 @@ Whether you're a student, a professional, or simply someone looking to enhance y
 
 Overall, "The Science of Learning Challenges: How to Use Cognitive Bias and Other Techniques to Overcome Obstacles" is a must-read for anyone who wants to take control of their learning journey. Whether you're struggling with specific challenges or simply looking to optimize your learning experience, this book offers evidence-based techniques and practical strategies that can help you overcome obstacles and achieve success.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
