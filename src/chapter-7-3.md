@@ -1,4 +1,4 @@
-Chapter: Building Community and Support Systems
+Building Community and Support Systems
 ===============================================
 
 In this chapter, we will explore the importance of building a strong community and support system to overcome obstacles in the learning process. Establishing connections with others who share similar learning goals can provide valuable resources, encouragement, and assistance. Creating a supportive learning environment can enhance motivation, collaboration, and overall learning outcomes. This chapter will delve into various strategies for building community and support systems that foster a positive and effective learning experience.

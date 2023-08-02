@@ -1,4 +1,4 @@
-Chapter: Techniques for Developing a Growth Mindset
+Techniques for Developing a Growth Mindset
 ===================================================
 
 In this chapter, we will explore various techniques that can be utilized to develop a growth mindset. A growth mindset is the belief that abilities and intelligence can be developed through effort, practice, and a willingness to learn from failures. By cultivating a growth mindset, individuals can overcome obstacles, embrace challenges, and achieve their full learning potential.

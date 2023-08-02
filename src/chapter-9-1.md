@@ -1,4 +1,4 @@
-Chapter: Using Learning Strategies for Career Development
+Using Learning Strategies for Career Development
 =========================================================
 
 Career development is an ongoing journey that requires continuous learning and skill development. In this chapter, we will explore how the science of learning challenges and cognitive biases can be used to develop effective learning strategies that enhance career growth and success. By leveraging these strategies, individuals can navigate challenges, acquire new skills, and advance their careers.

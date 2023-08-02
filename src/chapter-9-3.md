@@ -1,4 +1,4 @@
-Chapter: Building Skills through Learning
+Building Skills through Learning
 =========================================
 
 Skills are the foundation of professional success, and continuous learning is key to building and improving them. In this chapter, we will explore how the science of learning challenges can be applied to effectively develop skills through intentional learning strategies. By leveraging cognitive biases and other techniques, individuals can enhance their skill sets and thrive in their chosen career paths.

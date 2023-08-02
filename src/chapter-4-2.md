@@ -1,4 +1,4 @@
-Chapter: Techniques for Identifying Cognitive Biases
+Techniques for Identifying Cognitive Biases
 ====================================================
 
 In this chapter, we will explore various techniques and strategies for identifying cognitive biases. Cognitive biases are systematic patterns of deviation from rationality or objective judgment that can hinder learning and decision-making processes. By recognizing these biases, learners can develop self-awareness and make more informed choices. This chapter will delve into specific techniques that can help individuals identify cognitive biases and mitigate their impact.
