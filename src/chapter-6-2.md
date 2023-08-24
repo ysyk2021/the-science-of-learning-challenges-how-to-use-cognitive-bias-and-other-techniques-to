@@ -1,5 +1,3 @@
-Techniques for Using Metacognition to Improve Learning
-===============================================================
 
 Metacognition, the awareness and understanding of one's own thought processes, is a powerful tool for improving learning outcomes. This chapter explores various techniques that leverage metacognition to enhance learning effectiveness and overcome obstacles. These strategies empower learners to take an active role in their learning, monitor their progress, and make informed adaptations to their study approaches.
 

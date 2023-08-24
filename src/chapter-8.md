@@ -1,5 +1,3 @@
-Chapter 7: Applying Learning Strategies to Personal Growth
-==========================================================
 
 Learning strategies are not only useful for academic or professional development but also for personal growth. In this chapter, we will explore how to apply learning strategies to personal growth.
 

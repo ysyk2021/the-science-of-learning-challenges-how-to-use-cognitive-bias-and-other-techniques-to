@@ -1,5 +1,3 @@
-The Impact of Cognitive Bias on Learning
-=================================================
 
 Cognitive biases are inherent tendencies in human thinking that can significantly impact the learning process. In this chapter, we will explore the various types of cognitive biases and examine their effects on learning. By understanding these biases, learners can develop strategies to minimize their negative influence and optimize their learning outcomes.
 

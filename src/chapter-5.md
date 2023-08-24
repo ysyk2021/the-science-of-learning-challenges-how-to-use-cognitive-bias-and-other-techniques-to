@@ -1,5 +1,3 @@
-Chapter 4: Leveraging Cognitive Biases
-======================================
 
 Cognitive biases can be powerful tools for overcoming learning challenges. By understanding how cognitive biases work, individuals can leverage them to improve memory and retention and enhance decision-making skills. In this chapter, we will explore techniques for leveraging cognitive biases.
 

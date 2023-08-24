@@ -1,5 +1,3 @@
-Introduction
-============
 
 Welcome to "The Science of Learning Challenges: How to Use Cognitive Bias and Other Techniques to Overcome Obstacles." This book is intended for anyone facing learning challenges, whether in academic or professional settings.
 

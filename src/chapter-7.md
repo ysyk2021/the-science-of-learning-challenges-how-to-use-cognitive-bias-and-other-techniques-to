@@ -1,5 +1,3 @@
-Chapter 6: Navigating Learning Environments
-===========================================
 
 Learning environments can have a significant impact on learning outcomes and the presence of learning challenges. In this chapter, we will explore the impact of learning environments on learning challenges, techniques for navigating challenging learning environments, and strategies for building community and support systems.
 

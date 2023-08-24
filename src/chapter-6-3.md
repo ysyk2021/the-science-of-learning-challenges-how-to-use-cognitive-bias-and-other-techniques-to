@@ -1,5 +1,3 @@
-Building Self-Regulated Learning Strategies
-====================================================
 
 Self-regulated learning (SRL) is an essential process that empowers learners to take control of their own learning. It involves setting goals, monitoring progress, employing effective strategies, and reflecting on one's learning experiences. In this chapter, we will explore the concept of self-regulated learning and discuss strategies to build and enhance SRL skills.
 

@@ -1,5 +1,3 @@
-Chapter 5: Using Metacognition to Improve Learning
-==================================================
 
 Metacognition is the process of thinking about one's own learning, including awareness of one's own learning strengths and weaknesses, knowledge of effective learning strategies, and the ability to monitor and regulate one's own learning. In this chapter, we will explore the role of metacognition in overcoming learning challenges and techniques for using metacognition to improve learning outcomes.
 

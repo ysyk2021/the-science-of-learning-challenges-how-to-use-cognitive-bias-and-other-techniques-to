@@ -1,4 +1,3 @@
-# Conclusion
 
 The ongoing journey of overcoming learning challenges
 -----------------------------------------------------

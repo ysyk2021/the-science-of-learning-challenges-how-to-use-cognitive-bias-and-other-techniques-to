@@ -1,5 +1,3 @@
-Chapter 3: Identifying Cognitive Biases
-=======================================
 
 Cognitive biases can have a significant impact on our ability to overcome learning challenges. In this chapter, we will explore the impact of cognitive biases on learning challenges and techniques for identifying cognitive biases.
 

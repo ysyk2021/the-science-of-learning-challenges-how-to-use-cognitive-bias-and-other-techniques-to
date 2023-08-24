@@ -1,5 +1,3 @@
-The Impact of Cognitive Biases on Learning Challenges
-==============================================================
 
 Cognitive biases are inherent mental shortcuts and patterns that influence our thinking, decision-making, and learning processes. While these biases often serve as efficient heuristics, they can also create obstacles that hinder effective learning. This chapter explores the impact of cognitive biases on learning challenges, highlighting how awareness and strategies to mitigate these biases can enhance learning outcomes.
 

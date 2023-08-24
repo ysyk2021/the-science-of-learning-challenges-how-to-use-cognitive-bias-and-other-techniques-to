@@ -1,5 +1,3 @@
-Chapter 1: Understanding Learning Challenges
-============================================
 
 Learning challenges can have a significant impact on academic and professional success. In this chapter, we will explore what learning challenges are, the types of learning challenges, and the impact of learning challenges on academic and professional success.
 
