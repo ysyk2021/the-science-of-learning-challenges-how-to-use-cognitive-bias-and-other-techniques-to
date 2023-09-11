@@ -1,3 +1,6 @@
+# The Science of Learning Challenges: How to Use Cognitive Bias and Other Techniques to Overcome Obstacles
+
+Book Link: [https://zhengpublishing.com/the-science-of-learning-challenges-how-to-use-cognitive-bias-and-other-techniques-to-overcome-obstacles/](https://zhengpublishing.com/the-science-of-learning-challenges-how-to-use-cognitive-bias-and-other-techniques-to-overcome-obstacles/)
 
 "The Science of Learning Challenges: How to Use Cognitive Bias and Other Techniques to Overcome Obstacles" is a comprehensive guide aimed at anyone looking to improve their learning abilities. This book provides practical insights and proven strategies for overcoming obstacles in the learning process, using cognitive bias and other techniques.
 
